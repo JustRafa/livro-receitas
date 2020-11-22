@@ -1,6 +1,0 @@
-# Strtogonoff de Frango :chicken:
-
-
-
-
-
